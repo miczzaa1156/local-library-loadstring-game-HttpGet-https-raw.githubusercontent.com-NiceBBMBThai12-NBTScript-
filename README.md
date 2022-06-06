@@ -1,0 +1,1 @@
+# local-library-loadstring-game-HttpGet-https-raw.githubusercontent.com-NiceBBMBThai12-NBTScript-
